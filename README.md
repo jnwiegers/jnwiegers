@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Yannick!
-- 👀 I’m interested in the effect of hunting pressure on vertebrate communities, in particular in the tropics. 
+- 👀  I’m interested in the effect of hunting pressure on wildlife communities, in particular in the tropics.  
 - 🌱 I’m currently setting up my research and will start with my field work in September.
 - 📫 You can reach me at j.n.wiegers@uu.nl
 
